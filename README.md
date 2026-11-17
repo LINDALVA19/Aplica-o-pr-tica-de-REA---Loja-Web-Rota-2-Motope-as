@@ -1,0 +1,1 @@
+# Aplica-o-pr-tica-de-REA---Loja-Web-Rota-2-Motope-as
